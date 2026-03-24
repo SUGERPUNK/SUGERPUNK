@@ -1,12 +1,7 @@
 # ଘ(੭*ˊᵕˋ)੭* ̀
 ![Profile Views](https://komarev.com/ghpvc/?username=flohwalzer&label=days%20without%20masturbating&color=A49762&style=flat-square)
 
-![typing banner](https://readme-typing-svg.demolab.com?font=Playfair+Display&weight=900&size=22&color=A6905D&width=700&lines=I+felt+hot,+like+my+heart%E2%80%99s+dancing+and+throbbing.;I%E2%80%99ll+put+an+end+to+my+masturbation.;Love,+love,+love.+I%E2%80%99m+absorbed+in+it,+enjoying+it+through+my+body!;My+masturbation+can%E2%80%99t+end.)
-
-<p align="center">
-  <img src="./Zonder%20titel35.png" width="550">
-</p>
-
+THIS NEEDS TO BE REMADE NOO!!!!
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31idz7yuzlazltzmckodpqogaava&redirect=true">
