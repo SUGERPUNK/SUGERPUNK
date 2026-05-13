@@ -1,7 +1,7 @@
 # ଘ(੭*ˊᵕˋ)੭* ̀
 ![Profile Views](https://komarev.com/ghpvc/?username=flohwalzer&label=days%20without%20masturbating&color=A49762&style=flat-square)
 
-THIS NEEDS TO BE REMADE NOO!!!!
+<img src="https://raw.githubusercontent.com/YOUR-USERNAME/YOUR-REPO/main/assets/cute-character.gif" width="450">
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31idz7yuzlazltzmckodpqogaava&redirect=true">
