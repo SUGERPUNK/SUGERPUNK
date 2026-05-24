@@ -1,8 +1,22 @@
-# ଘ(੭*ˊᵕˋ)੭* ̀
-![Profile Views](https://komarev.com/ghpvc/?username=flohwalzer&label=GLITTER!&color=f94d00&style=flat-square)
+<h1 align="center">꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂</h2>
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Tiny5&size=25&duration=5001&pause=1000&color=DB420CD5&background=FF6D2500&vCenter=true&width=435&lines=KAWAII+NIGGA!;WHEN+YOU+MESS+WITH+ME%2C;YOURE+PLAYING+WITH+FIRE!;IM+GLITTER+SUNNY!;who+the+hell+typing..." alt="Typing SVG" /></a>
 
-<img width="1210" height="550[Uploading 68747470733a2f2f726561646d652d747970696e672d7376672e64656d6f6c61622e636f6d3f666f6e743d4a65727365792b31302670617573653d3130303026636f6c6f723d6666613863352677696474683d343335266c696e65733d436d6572652b212b48656865213b4875672b74696d652b212b3b467265652b687567732b.…]()
-" alt="ezgif com-resize (3)" src="https://github.com/user-attachments/assets/055e677a-eb9e-47d2-9cb6-1ca5b5dcfea8" />
+![Profile Views](https://komarev.com/ghpvc/?username=flohwalzer&label=⚜&color=f94d00&style=flat-square)
 
+<p align="center">
+  <a href="https://guns.lol/kittenclaws">gunslol</a> &nbsp;𖤝&nbsp; 
+  <a href="https://en.pronouns.page/@doggybitez">prns</a> &nbsp;𖤝&nbsp; 
+  <a href="https://sugarfangz.atabook.org/">ata</a>
+</p>
+
+<img width="950" height="400" alt="ezgif com-resize (10)" src="https://github.com/user-attachments/assets/a8d07e16-9950-4fa4-82a5-aa79e0c0eec2" />
+
+$\color{#FF5733}{\text{Dit is gekleurde tekst met een hexcode}}$
+
+<img width="950" height="400" alt="ezgif com-resize (11)" src="https://github.com/user-attachments/assets/286d8ae4-c6cb-4f3c-8808-eb06daace8f5" />
+
+$\color{#FFDD38}{\text{Dit is gekleurde tekst met een hexcode}}$
+
+<img width="950" height="400" alt="Reblogbymelaningifs4images-ezgif com-resize (1)" src="https://github.com/user-attachments/assets/e93fbeb1-0f01-49a0-accd-97d192531258" />
+
+$\color{#FF3898}{\text{Dit is gekleurde tekst met een Hexcode}}$
