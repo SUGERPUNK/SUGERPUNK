@@ -10,7 +10,7 @@
 
 
 
-$\color{#38010C}{\text{i go by many names. look! ms.xenobia, xenobia, xeno, missy, dollete, razor,}}$
+$\color{#38010C}{\text{this is a wip guys... i gots to make the dividers....}}$
 
 
 $\color{#59051E}{\text{dit is gekleurde tekst met een hexcode}}$
