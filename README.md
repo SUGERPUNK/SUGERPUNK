@@ -10,7 +10,7 @@
 
 
 
-$\color{#38010C}{\text{this is a wip guys... i gots to make the dividers....}}$
+$\color{#38010C}{\text{⋆. 𐙚 ˚this is a wip guys... i gots to make the dividers....}}$
 
 
-$\color{#59051E}{\text{dit is gekleurde tekst met hexcode}}$
+$\color{#380120}{\text{₊˚⊹ 𐂯dit is gekleurde tekst met hexcode}}$
