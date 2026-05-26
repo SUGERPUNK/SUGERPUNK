@@ -7,10 +7,11 @@
   <a href="https://en.pronouns.page/@doggybitez">prns</a> &nbsp;⚚&nbsp; 
   <a href="https://sugarfangz.atabook.org/">ata</a>
 </p>
+<img width="1919" height="484" alt="0" src="https://github.com/user-attachments/assets/e682061c-a46b-4332-8ec2-15ab60fa0ae7" />
 
 
-
-$\color{#38010C}{\text{⋆. 𐙚 ˚this is a wip guys... i gots to make the dividers....}}$
+$\color{#2B021B}{\text{⋆. 𐙚 ˚this is a wip guys... im kinda lazy....}}$
 
 
 $\color{#380120}{\text{₊˚⊹ 𐂯dit is gekleurde tekst met hexcode}}$
+<img width="1919" height="484" alt="0" src="https://github.com/user-attachments/assets/1120ad20-1b66-4c1e-be1c-7a150927c171" />
