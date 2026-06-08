@@ -7,7 +7,7 @@
 
 <p align="center">
   <a href="https://guns.lol/kittenclaws">gunslol</a> &nbsp;⚚&nbsp; 
-  <a href="https://en.pronouns.page/@doggybitez">prns</a> &nbsp;⚚&nbsp; 
+  <a href="https://en.pronouns.page/@puppydxlls">prns</a> &nbsp;⚚&nbsp; 
   <a href="https://sugarfangz.atabook.org/">ata</a>
 </p>
 
