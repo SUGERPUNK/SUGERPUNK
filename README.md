@@ -15,6 +15,6 @@
 </p>
 
 
-$\color{#F78DCE}{\text{⋆. 𐙚 ˚HI GUYS I WILL MAKE NEW BANNERS FOR THIS PROF SOON I SWEAR!!!....}}$
+<p align="center">$\color{#F78DCE}{\text{⋆. 𐙚 ˚HI GUYS I WILL MAKE NEW BANNERS FOR THIS PROF SOON I SWEAR!!!....}}$</p>
 
-$\color{#ED58BC}{\text{₊˚⊹ 𐂯dit is gekleurde tekst met hexcode}}$
+<p align="center">$\color{#ED58BC}{\text{₊˚⊹ 𐂯dit is gekleurde tekst met hexcode}}$</p>
