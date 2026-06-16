@@ -17,8 +17,8 @@
   <a href="https://sugarfangz.atabook.org/">ata</a>
 </p>
 
-<p align="center">$\color{#F78DCE}{\text{𐂯 .ᐟ⸝⸝ i go by razor,dollete,missy,ms.xenobia,xeno(bia),cherry.}}$</p>
+<p align="center">$\color{#F78DCE}{\text{𐂯 .ᐟ⸝⸝ 𝖎𝙞 𝙜𝙤 𝙗𝙮 𝙧𝙖𝙯𝙤𝙧,𝙙𝙤𝙡𝙡𝙚𝙩𝙚,𝙢𝙞𝙨𝙨𝙮,𝙢𝙨.𝙭𝙚𝙣𝙤𝙗𝙞𝙖,𝙭𝙚𝙣𝙤(𝙗𝙞𝙖),𝙘𝙝𝙚𝙧𝙧𝙮.}}$</p>
 
-<p align="center">$\color{#F569BD}{\text{₊˚⊹ 𐂯 my pronouns are she/he/it}}$</p>
+<p align="center">$\color{#F569BD}{\text{₊˚⊹ 𐂯 𝙢𝙮 𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙨 𝙖𝙧𝙚 𝙨𝙝𝙚/𝙝𝙚/𝙞𝙩}}$</p>
 
-<p align="center">$\color{#ED58BC}{\text{𐂯〃.✦ ݁˖ this is all yall need to know ngl}}$</p>
+<p align="center">$\color{#ED58BC}{\text{𐂯〃.✦ ݁˖ 𝙩𝙝𝙞𝙨 𝙞𝙨 𝙖𝙡𝙡 𝙮𝙖𝙡𝙡 𝙣𝙚𝙚𝙙𝙖 𝙠𝙣𝙤𝙬 𝙣𝙜𝙡}}$</p>
