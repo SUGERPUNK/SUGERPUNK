@@ -12,9 +12,9 @@
 
 
 <p align="center">
-  <a href="https://guns.lol/kittenclaws">gunslol</a> &nbsp;‎ʚɞ&nbsp; 
-  <a href="https://en.pronouns.page/@puppydxlls">prns</a> &nbsp;‎ʚɞ&nbsp; 
-  <a href="https://sugarfangz.atabook.org/">ata</a>
+  <a href="https://guns.lol/kittenclaws">GUNS</a> &nbsp;‎ʚɞ&nbsp; 
+  <a href="https://en.pronouns.page/@puppydxlls">PRNS</a> &nbsp;‎ʚɞ&nbsp; 
+  <a href="https://sugarfangz.atabook.org/">ATA</a>
 </p>
 
 <p align="center">$\color{#F78DCE}{\text{𐂯 .ᐟ⸝⸝ 𝙞 𝙜𝙤 𝙗𝙮 𝙧𝙖𝙯𝙤𝙧,𝙙𝙤𝙡𝙡𝙚𝙩𝙚,𝙢𝙞𝙨𝙨𝙮,𝙢𝙨.𝙭𝙚𝙣𝙤𝙗𝙞𝙖,𝙭𝙚𝙣𝙤(𝙗𝙞𝙖),𝙘𝙝𝙚𝙧𝙧𝙮.}}$</p>
