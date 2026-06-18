@@ -1,7 +1,7 @@
 <h1 align="center">______๑♡⁠๑______</h2>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=flohwalzer&label=˚ʚ♡ɞ˚&color=FC97C6&style=square" alt="Profile Views"/>
+  <img src="https://komarev.com/ghpvc/?username=flohwalzer&label=˚ʚ♡ɞ˚&color=F25A99&style=square" alt="Profile Views"/>
 
 
 
