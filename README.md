@@ -20,7 +20,9 @@
 
 <p align="center">$\color{#FF7AB8}{\text{ᯓ𑣲⋆𝙘𝙝𝙚𝙘𝙠 𝙤𝙪𝙩 𝙢𝙮 𝙨𝙞𝙩𝙚𝙨 𝙗𝙧𝙖𝙝 .}}$</p>
 <p align="center">$\color{#FF7AB8}{\text{ᯓ𑣲⋆𝙋𝙎, 𝙞 𝙬𝙞𝙡𝙡 𝙨𝙖𝙮 𝙨𝙡𝙪𝙧𝙨 𝙞 𝙘𝙖𝙣 𝙧𝙚𝙘𝙡𝙖𝙞𝙢 .}}$</p>
+<p align="center">$\color{#FF7AB8}{\text{ᯓ𑣲⋆𝙤𝙢𝙜 𝙥𝙡𝙨 𝙫𝙞𝙚𝙬 𝙩𝙝𝙞𝙨 𝙤𝙣 𝙥𝙘 .}}$</p>
 <p align="center"><img width="74" height="18" alt="Hello-IMG1721006664316" src="https://github.com/user-attachments/assets/46bc3476-891b-4c90-88f7-cb328ff3bc77" /></p> 
+
 <h1 align="center">︵︵︵ ๑ ♡ ๑ ︵︵︵</h2>
 
 
