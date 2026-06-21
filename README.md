@@ -15,7 +15,7 @@
 <p align="center">
   <a href="https://guns.lol/kittenclaws">GUNS</a> &nbsp;‎ʚɞ&nbsp; 
   <a href="https://en.pronouns.page/@puppydxlls">PRNS</a> &nbsp;‎ʚɞ&nbsp; 
-  <a href="https://sugarfangz.atabook.org/">ATA</a>
+  <a href="https://angelfangz.atabook.org/">ATA</a>
 </p>
 
 <p align="center">$\color{#FF7AB8}{\text{ᯓ𑣲⋆𝙘𝙝𝙚𝙘𝙠 𝙤𝙪𝙩 𝙢𝙮 𝙨𝙞𝙩𝙚𝙨 𝙗𝙧𝙖𝙝 .}}$</p>
