@@ -7,8 +7,8 @@
 
 
 
+![Profile GIF](f4d23353ba0045602637427a4eb65e63-ezgif.com-resize.gif)
 
-<img width="1200" height="500" alt="ezgif com-resize (15)" src="https://github.com/user-attachments/assets/7e56b88d-018a-4938-b71b-bf45562e2b83" />
 
 
 
